@@ -1,1 +1,1 @@
-# Japanese-Hiragana-Auto-Lessons
+# Japanese-Hiragana-Lessons
